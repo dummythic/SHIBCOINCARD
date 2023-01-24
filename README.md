@@ -1,1 +1,1 @@
-# SHIBCOINCARD![COINSFORSHIB](https://user-images.githubusercontent.com/92018247/214198473-b733872b-8ceb-4ad8-b56a-44caa21d741c.png)
+# SHIBCOINCARD![COINSFORSHIB]![COINSFORSHIB](https://user-images.githubusercontent.com/92018247/214208316-bc834b95-79b6-4345-977b-8373b6154161.png)
